@@ -1,2 +1,2 @@
-# Manuel-lvarez-Bravo-fotograf-a-po-tica
+# Manuel-lvarez-Bravo-fotografía-poética
 Manuel Álvarez Bravo, fotógrafo y cinefotógrafo mexicano, capturó la esencia de México con una maestría única. Su uso distintivo de luces y sombras y su enfoque en la Street Photography lo convirtieron en una figura influyente. Sus obras retratan la vida cotidiana con sensibilidad y detalle, ofreciendo una perspectiva poética y estética de la realidad social.
